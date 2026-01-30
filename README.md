@@ -3,8 +3,7 @@
 ## MBTI:ENFP-T | Im straight
 ## IfidontrespondthatmeansImplayingFFXIV/Roblox | I will accept all friend requests u can tell me ur name I will add a note for u
 ## My English is poor so I use translator sometimes
-## DOD > devesquot(otp) | loveshot x caretaker(like)
-## FSK > AZURETIME(OTP!!!)
+## kiss = u r pretty I like ur pony
 <!--
 **ABAI0808/ABAI0808** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
