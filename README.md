@@ -1,6 +1,6 @@
-## Greeting!OKihavenoideahowtowriteenglish
-## If I don't respond, it means I'm playing FFXIV
-## My English is poor so I mostly use a translator X-X
+## Greeting!OKihavenoideahowtowriteenglish idontliketotypespaces Dontcorrectme
+## IfidontrespondthatmeansImplayingFFXIV
+## My English is poor so I use translator sometimes
 <!--
 **ABAI0808/ABAI0808** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
