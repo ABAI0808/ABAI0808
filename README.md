@@ -1,9 +1,9 @@
-## 𝒢𝓇𝑒𝑒𝓉𝒾𝓃𝑔!call me AB阿白(ABAI or AB) / RTX-K!
-## OKihavenoideahowtowriteenglish idontliketotypespaces Dontcorrectme :>
-## MBTI:ENFP-T | Im straight I have anxiety disorder
-## IfidontrespondthatmeansImplayingFFXIV/Roblox | 𝕀 𝕨𝕚𝕝𝕝 𝕒𝕔𝕔𝕖𝕡𝕥 𝕒𝕝𝕝 𝕗𝕣𝕚𝕖𝕟𝕕 𝕣𝕖𝕢𝕦𝕖𝕤𝕥𝕤 𝕦 𝕔𝕒𝕟 𝕥𝕖𝕝𝕝 𝕞𝕖 𝕦𝕣 𝕟𝕒𝕞𝕖 𝕀 𝕨𝕚𝕝𝕝 𝕒𝕕𝕕 𝕒 𝕟𝕠𝕥𝕖 𝕗𝕠𝕣 𝕦
-## ᴍʏ ᴇɴɢʟɪꜱʜ ɪꜱ ᴘᴏᴏʀ ꜱᴏ ɪ ᴜꜱᴇ ᴛʀᴀɴꜱʟᴀᴛᴏʀ ꜱᴏᴍᴇᴛɪᴍᴇꜱ
-## 𝓀𝒾𝓈𝓈 = 𝓊 𝓇 𝓅𝓇𝑒𝓉𝓉𝓎 𝐼 𝓁𝒾𝓀𝑒 𝓊𝓇 𝓅𝑜𝓃𝓎
+## 💚💚𝒢𝓇𝑒𝑒𝓉𝒾𝓃𝑔!call me AB阿白(ABAI or AB) / RTX-K!
+## 💚💚OKihavenoideahowtowriteenglish idontliketotypespaces Dontcorrectme :>
+## 💚💚MBTI:ENFP-T | Im straight I have anxiety disorder
+## 💚💚IfidontrespondthatmeansImplayingFFXIV/Roblox | 𝕀 𝕨𝕚𝕝𝕝 𝕒𝕔𝕔𝕖𝕡𝕥 𝕒𝕝𝕝 𝕗𝕣𝕚𝕖𝕟𝕕 𝕣𝕖𝕢𝕦𝕖𝕤𝕥𝕤 𝕦 𝕔𝕒𝕟 𝕥𝕖𝕝𝕝 𝕞𝕖 𝕦𝕣 𝕟𝕒𝕞𝕖 𝕀 𝕨𝕚𝕝𝕝 𝕒𝕕𝕕 𝕒 𝕟𝕠𝕥𝕖 𝕗𝕠𝕣 𝕦
+## 💚💚ᴍʏ ᴇɴɢʟɪꜱʜ ɪꜱ ᴘᴏᴏʀ ꜱᴏ ɪ ᴜꜱᴇ ᴛʀᴀɴꜱʟᴀᴛᴏʀ ꜱᴏᴍᴇᴛɪᴍᴇꜱ
+## 💚💚𝓀𝒾𝓈𝓈 = 𝓊 𝓇 𝓅𝓇𝑒𝓉𝓉𝓎 𝐼 𝓁𝒾𝓀𝑒 𝓊𝓇 𝓅𝑜𝓃𝓎
 <!--
 **ABAI0808/ABAI0808** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
