@@ -1,4 +1,5 @@
-## Greeting!OKihavenoideahowtowriteenglish idontliketotypespaces Dontcorrectme :>
+## Greeting!call me AB阿白(ABAI or AB) / RTX-K!
+## OKihavenoideahowtowriteenglish idontliketotypespaces Dontcorrectme :>
 ## MBTI:ENFP-T | Im straight
 ## IfidontrespondthatmeansImplayingFFXIV/Roblox | I will accept all friend requests u can tell me ur name I will add a note for u
 ## My English is poor so I use translator sometimes
