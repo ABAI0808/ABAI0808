@@ -1,6 +1,6 @@
 ## Greeting!call me AB阿白(ABAI or AB) / RTX-K!
 ## OKihavenoideahowtowriteenglish idontliketotypespaces Dontcorrectme :>
-## MBTI:ENFP-T | Im straight
+## MBTI:ENFP-T | straight I have anxiety disorder
 ## IfidontrespondthatmeansImplayingFFXIV/Roblox | I will accept all friend requests u can tell me ur name I will add a note for u
 ## My English is poor so I use translator sometimes
 ## kiss = u r pretty I like ur pony
