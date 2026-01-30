@@ -1,5 +1,5 @@
-## Greeting!OKihavenoideahowtowriteenglish idontliketotypespaces Dontcorrectme
-## IfidontrespondthatmeansImplayingFFXIV
+## Greeting!OKihavenoideahowtowriteenglish idontliketotypespaces Dontcorrectme :>
+## IfidontrespondthatmeansImplayingFFXIV/Roblox | 
 ## My English is poor so I use translator sometimes
 <!--
 **ABAI0808/ABAI0808** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
