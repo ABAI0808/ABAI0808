@@ -1,4 +1,4 @@
-## 🥺my english is poor
+## 🥺my english is bad sryyy
 ![fav](https://github.com/ABAI0808/ABAI0808/blob/main/1d2239867553dd870e34c3ada9fb5ff4.png)
 <!--
 **ABAI0808/ABAI0808** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
