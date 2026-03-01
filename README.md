@@ -1,7 +1,9 @@
 <div align="center" style="padding: 2rem; border-radius: 10px;">
 <small>°. ⑅♡⑅.°. +.°. ⑅♡⑅.°. +.°. ⑅♡⑅ .°<small>
-  
+<br><br>
 <small>🥺my english is bad sryy</small>
+  
+<small>call me AB阿白(ABAI)/RTXK! | ENFP-T </small>
 <br><br>
 <img src="https://github.com/ABAI0808/ABAI0808/blob/main/ver2.png" alt="XD" style="max-width: 400px; border-radius: 4px;">
 <br><br>
