@@ -4,7 +4,7 @@
 
 <br><br>
 
-<img src="https://github.com/ABAI0808/ABAI0808/blob/main/1d2239867553dd870e34c3ada9fb5ff4.png" alt="XD" style="max-width: 400px; border-radius: 4px;">
+<img src="https://github.com/ABAI0808/ABAI0808/blob/main/ver2.png" alt="XD" style="max-width: 400px; border-radius: 4px;">
 
 <br><br>
 
