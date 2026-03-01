@@ -1,4 +1,4 @@
-<div align="center" style="background-color: #0d1117; padding: 2rem; border-radius: 8px;">
+<div align="center" style="padding: 2rem; border-radius: 10px;">
 <small>°. ⑅♡⑅.°. +.°. ⑅♡⑅.°. +.°. ⑅♡⑅ .°<small>
   
 <small>🥺my english is bad sryy</small>
