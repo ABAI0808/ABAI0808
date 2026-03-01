@@ -1,11 +1,15 @@
 <div align="center" style="background-color: #0d1117; padding: 2rem; border-radius: 8px;">
-<small style="color: #e6edf3;">🥺my english is bad sryy</small>
+<small>°. ⑅♡⑅.°. +.°. ⑅♡⑅.°. +.°. ⑅♡⑅ .°<small>
+  
+<small>🥺my english is bad sryy</small>
 <br><br>
 <img src="https://github.com/ABAI0808/ABAI0808/blob/main/ver2.png" alt="XD" style="max-width: 400px; border-radius: 4px;">
 <br><br>
-<small style="color: #e6edf3;">offtab most time! | drawing/playing roblox or FFXIV!</small>
+<small>offtab most time! | drawing/playing roblox or FFXIV!</small>
 <br>
-<small style="color: #e6edf3;">i also love robloxargs!!!</small>
+<small>i also love robloxargs!!!</small>
+
+<small>°. ⑅♡⑅.°. +.°. ⑅♡⑅.°. +.°. ⑅♡⑅ .°<small>
 <br><br>
 </div>
 
