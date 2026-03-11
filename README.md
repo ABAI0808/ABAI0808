@@ -1,7 +1,7 @@
 <div align="center" style="padding: 2rem; border-radius: 10px;">
 <small>°. ⑅♡⑅.°. +.°. ⑅♡⑅.°. +.°. ⑅♡⑅ .°<small>
 <br><br>
-<small>🥺 my english is bad sryy | pfp is my sona hehehe 😆</small>
+<small>🥺 my english is bad sry</small>
   
 <small>💚 call me AB阿白(ABAI)/RTXK! | ENFP-T 💚</small>
 <br><br>
