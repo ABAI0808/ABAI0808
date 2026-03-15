@@ -1,13 +1,14 @@
 <div align="center" style="padding: 2rem; border-radius: 10px;">
 <small>°. ⑅♡⑅.°. +.°. ⑅♡⑅.°. +.°. ⑅♡⑅ .°<small>
 <br><br>
-<small>🥺 my english is bad sry</small>
+<small>🥺 my english is bad sry | I🩵DUED1 SOOMUCH AHAHAHAHHA(NOTYUME) 👑</small>
   
 <small>💚 call me AB阿白(ABAI)/RTXK! | ENFP-T 💚</small>
 <br><br>
-<img src="https://github.com/ABAI0808/ABAI0808/blob/main/ver2.png" alt="XD" style="max-width: 400px; border-radius: 4px;">
+<img src="https://github.com/ABAI0808/ABAI0808/blob/main/IMG_7460.GIF" alt="XD" style="max-width: 400px; border-radius: 4px;">
 <br><br>
 <small>🌙 offtab most time! | drawing/playing roblox or FFXIV! 🌙</small>
+<img src="https://github.com/ABAI0808/ABAI0808/blob/main/ver2.png" alt="XD" style="max-width: 400px; border-radius: 4px;">
 <br>
 <small>🤩 i also love robloxargs!!! 🍕</small>
 <img src="https://github.com/ABAI0808/ABAI0808/blob/main/TROR2.png" alt="XD" style="max-width: 400px; border-radius: 4px;">
