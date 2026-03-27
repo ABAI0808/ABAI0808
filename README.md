@@ -11,7 +11,7 @@
 <img src="https://github.com/ABAI0808/ABAI0808/blob/main/ver2.png" alt="XD" style="max-width: 400px; border-radius: 4px;">
 <br>
 <small>🤩 i also love robloxargs!!! 🍕</small>
-<img src="https://github.com/ABAI0808/ABAI0808/blob/main/TROR2.png" alt="XD" style="max-width: 400px; border-radius: 4px;">
+<img src="https://github.com/ABAI0808/ABAI0808/blob/main/IMG_8141.PNG" alt="XD" style="max-width: 400px; border-radius: 4px;">
 <small>🩵 art 🩶</small>
 
 <small>°. ⑅♡⑅.°. +.°. ⑅♡⑅.°. +.°. ⑅♡⑅ .°<small>
